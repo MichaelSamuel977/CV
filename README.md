@@ -1,7 +1,7 @@
 ## Michael Samuel
 English Major
 
-(314) 488-8449 | mikesamuel977@gmail.com
+(314) 488-8449 | mikesamuel977@gmail.com | Creve Coeur, MO
 
 ## Education
 Bachelor's in English with Emphasis on Creative Writing
