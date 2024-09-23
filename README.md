@@ -30,13 +30,8 @@ English major with a strong background in creative writing, editing, and digital
 - Ability to work independently and collaboratively to meet tight deadlines
 - Experience with layout and design for marketing materials
 
-## Projects
-- Regularly contribute original creative pieces to university publications
-- Maintain a personal blog focused on [specific topic], demonstrating consistent content creation and audience engagement
-
 ## Additional Experience
-- Participated in writing workshops and seminars to enhance content creation skills
-- Volunteer content writer for [local organization/cause], creating engaging articles and social media posts
+- Participated in writing workshops to enhance content creation skills
 
 ---
 
